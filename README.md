@@ -5,6 +5,8 @@
 
 SUKUNAO7
 
+-DARK-
+
 Røx2n
 
 mustardd
@@ -12,9 +14,6 @@ mustardd
 pinker<3
 
 𝗧𝗲𝘀𝘁𝗲𝗿:
-
-Røx2n
-
 
 V. Kedi Hazretleri
 
