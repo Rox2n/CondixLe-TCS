@@ -7,8 +7,6 @@ SUKUNAO7
 
 -DARK-
 
-Røx2n
-
 mustardd
 
 pinker<3
