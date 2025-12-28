@@ -15,4 +15,4 @@ pinker<3
 
 V. Kedi Hazretleri
 
-<img width="1024" height="1106" alt="1000018633" src="https://github.com/user-attachments/assets/0709dc14-48ab-4533-87c4-97a14903341d" />
+![1000025479](https://github.com/user-attachments/assets/c21a24ac-756d-4a0a-844e-b669ae830d6b)
